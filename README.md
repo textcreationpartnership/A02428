@@ -35,348 +35,86 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The English phlebotomy: or, Method and way of healing by letting of blood Very profitable in this sp
+
+1. To the right Worſhipfull, Maſter Reginald Scot, Eſqure; dayly increaſe of wealth, Worſhip and wiſedom, in the true feare of GOD.
+
 #####Body#####
 
-1. Of fulneſſe, emptineſſe, and their diuiſions. Chap. 1.
+1. The Engliſh PHLEBOTOMY OR Methode and way of healing, by letting of bloud.
 
-    _ An Obiection.
+    _ Of fulneſſe, emptineſſe, and their diuiſions. Chap. 1.
 
-    _ The Solution.
+    _ What Euacuation is, and of the kinds and differences thereof. Chap. 2.
 
-    _ Certaine very old engliſh verſes, concerning the veines and letting of bloud, taken out of a very auncient paper booke of Phiſicke notes.
+    _ What Phlebotomy is and from whence the opening of a vaine doth e uacuate. Chap. 3.
 
-    _ An Exception.
+    _ Whether Phlebotomie must go before purging▪ or contrarie. Chap. 4.
 
-    _ Concluſio Operis.
+    _ Of the effectes, that is, Of the profits and diſprofits of opening a veine. Chap. 5.
 
-1. What Euacuation is, and of the kinds and differences thereof. Chap. 2.
+    _ Of Revulſion that is pulling backe, and deriuation, that is, turning aſide of bloud and Humors by opening of a veine. Chap. 6.
 
-    _ An Obiection.
+      * An Obiection.
 
-    _ The Solution.
+      * The Solution.
 
-    _ Certaine very old engliſh verſes, concerning the veines and letting of bloud, taken out of a very auncient paper booke of Phiſicke notes.
+    _ Whether purgation by ſiege or inward medicine receiued, cannot, or may not, euacuate the bloud. And thereaſons anſwered that are brought for proofe thereof. Chap. 7.
 
-    _ An Exception.
+    _ Of the impediments or lets of Phlebotomy, and of the cauſes requiring and furthering the ſame. Chap. 8.
 
-    _ Concluſio Operis.
+    _ diligen•〈…〉 ding〈◊〉 perſons as are me•te or vnmeete to be ••r he loud. Chap. 9.
 
-1. What Phlebotomy is and from whence the opening of a vaine doth e uacuate. Chap. 3.
+    _ What corruption of Humors bleeding remoueth from the veines. Chap. 10.
 
-    _ An Obiection.
+    _ A particular reherſall of thoſe diſeaſes preſent, or future, which are cured by bleding. Chap. 11.
 
-    _ The Solution.
+    _ What voluntary eruption of bloud profiteth 〈◊〉 ſicknes. Chap. 12.
 
-    _ Certaine very old engliſh verſes, concerning the veines and letting of bloud, taken out of a very auncient paper booke of Phiſicke notes.
+    _ How to know by certain• ſignes the greatnes of the diſeaſe, and the firmenes of the naturall forces: wherby coniecture may be made, whether the Pacient bee to be let bloud or no. Chap. 13.
 
-    _ An Exception.
+    _ To knowe by the greatnes of the diſeaſe, & the ſtrength of the naturall powers: the quantitie of bloud that muſt be withdrawen. Chap. 14.
 
-    _ Concluſio Operis.
+    _ An obſeruation of things preſent & paſt, and alſo a foreſight of things future: needful & neceſſarie to the further knowledge of the quātitie of bloud that muſt be taken. Chap. 15.
 
-1. Whether Phlebotomie must go before purging▪ or contrarie. Chap. 4.
-
-    _ An Obiection.
-
-    _ The Solution.
-
-    _ Certaine very old engliſh verſes, concerning the veines and letting of bloud, taken out of a very auncient paper booke of Phiſicke notes.
-
-    _ An Exception.
-
-    _ Concluſio Operis.
-
-1. Of the effectes, that is, Of the profits and diſprofits of opening a veine. Chap. 5.
-
-    _ An Obiection.
-
-    _ The Solution.
-
-    _ Certaine very old engliſh verſes, concerning the veines and letting of bloud, taken out of a very auncient paper booke of Phiſicke notes.
-
-    _ An Exception.
-
-    _ Concluſio Operis.
-
-1. Of Revulſion that is pulling backe, and deriuation, that is, turning aſide of bloud and Humors by opening of a veine. Chap. 6.
-
-    _ An Obiection.
-
-    _ The Solution.
-
-    _ Certaine very old engliſh verſes, concerning the veines and letting of bloud, taken out of a very auncient paper booke of Phiſicke notes.
-
-    _ An Exception.
-
-    _ Concluſio Operis.
-
-1. Whether purgation by ſiege or inward medicine receiued, cannot, or may not, euacuate the bloud. And thereaſons anſwered that are brought for proofe thereof. Chap. 7.
-
-    _ An Obiection.
-
-    _ The Solution.
-
-    _ Certaine very old engliſh verſes, concerning the veines and letting of bloud, taken out of a very auncient paper booke of Phiſicke notes.
-
-    _ An Exception.
-
-    _ Concluſio Operis.
-
-1. Of the impediments or lets of Phlebotomy, and of the cauſes requiring and furthering the ſame. Chap. 8.
-
-    _ An Obiection.
-
-    _ The Solution.
-
-    _ Certaine very old engliſh verſes, concerning the veines and letting of bloud, taken out of a very auncient paper booke of Phiſicke notes.
-
-    _ An Exception.
-
-    _ Concluſio Operis.
-
-1. diligen•〈…〉 ding〈◊〉 perſons as are me•te or vnmeete to be ••r he loud. Chap. 9.
-
-    _ An Obiection.
-
-    _ The Solution.
-
-    _ Certaine very old engliſh verſes, concerning the veines and letting of bloud, taken out of a very auncient paper booke of Phiſicke notes.
-
-    _ An Exception.
-
-    _ Concluſio Operis.
-
-1. What corruption of Humors bleeding remoueth from the veines. Chap. 10.
-
-    _ An Obiection.
-
-    _ The Solution.
-
-    _ Certaine very old engliſh verſes, concerning the veines and letting of bloud, taken out of a very auncient paper booke of Phiſicke notes.
-
-    _ An Exception.
-
-    _ Concluſio Operis.
-
-1. A particular reherſall of thoſe diſeaſes preſent, or future, which are cured by bleding. Chap. 11.
-
-    _ An Obiection.
-
-    _ The Solution.
-
-    _ Certaine very old engliſh verſes, concerning the veines and letting of bloud, taken out of a very auncient paper booke of Phiſicke notes.
-
-    _ An Exception.
-
-    _ Concluſio Operis.
-
-1. What voluntary eruption of bloud profiteth 〈◊〉 ſicknes. Chap. 12.
-
-    _ An Obiection.
-
-    _ The Solution.
-
-    _ Certaine very old engliſh verſes, concerning the veines and letting of bloud, taken out of a very auncient paper booke of Phiſicke notes.
-
-    _ An Exception.
-
-    _ Concluſio Operis.
-
-1. How to know by certain• ſignes the greatnes of the diſeaſe, and the firmenes of the naturall forces: wherby coniecture may be made, whether the Pacient bee to be let bloud or no. Chap. 13.
-
-    _ An Obiection.
-
-    _ The Solution.
-
-    _ Certaine very old engliſh verſes, concerning the veines and letting of bloud, taken out of a very auncient paper booke of Phiſicke notes.
-
-    _ An Exception.
-
-    _ Concluſio Operis.
-
-1. To knowe by the greatnes of the diſeaſe, & the ſtrength of the naturall powers: the quantitie of bloud that muſt be withdrawen. Chap. 14.
-
-    _ An Obiection.
-
-    _ The Solution.
-
-    _ Certaine very old engliſh verſes, concerning the veines and letting of bloud, taken out of a very auncient paper booke of Phiſicke notes.
-
-    _ An Exception.
-
-    _ Concluſio Operis.
-
-1. An obſeruation of things preſent & paſt, and alſo a foreſight of things future: needful & neceſſarie to the further knowledge of the quātitie of bloud that muſt be taken. Chap. 15.
-
-    _ An Obiection.
-
-    _ The Solution.
-
-    _ Certaine very old engliſh verſes, concerning the veines and letting of bloud, taken out of a very auncient paper booke of Phiſicke notes.
-
-    _ An Exception.
-
-    _ Concluſio Operis.
-
-1. Of the time and ſeaſons of the ſickeneſse, of this yea•e, of the daie, and houre of the daie, when a man is to bleede, or not to bleede.
+    _ Of the time and ſeaſons of the ſickeneſse, of this yea•e, of the daie, and houre of the daie, when a man is to bleede, or not to bleede.
 Chap. 16.
 
-    _ An Obiection.
+    _ Of Astrologicall obſeruation in bleeding, and of an other obſeruation neerely aanexed vnto the ſame: ſhewing what members, and parts of the bodie are to bee opened according to the ſeuerall ſeaſons of the years.
 
-    _ The Solution.
+    _ Preparation before bleeding. Chap. 18.
 
-    _ Certaine very old engliſh verſes, concerning the veines and letting of bloud, taken out of a very auncient paper booke of Phiſicke notes.
+    _ What is to be done in the verie time of the inciſion. Chap. 19.
 
-    _ An Exception.
+    _ A preſcription, or regiment of the patient, after bleeding. Chap. 20.
 
-    _ Concluſio Operis.
+    _ What veines are to be opened, both in generall, & particular diſeaſes. Chap. 21.
 
-1. Of Astrologicall obſeruation in bleeding, and of an other obſeruation neerely aanexed vnto the ſame: ſhewing what members, and parts of the bodie are to bee opened according to the ſeuerall ſeaſons of the years.
+      * Certaine very old engliſh verſes, concerning the veines and letting of bloud, taken out of a very auncient paper booke of Phiſicke notes.
 
-    _ An Obiection.
+    _ A profitable obſeruation of the bloud extracted. Chap. 22.
 
-    _ The Solution.
+    _ A ſhort reherſall of eight auncient errours, touching bleeding, and a ſufficient confutation of them, by auncient authorities. Chap. 23.
 
-    _ Certaine very old engliſh verſes, concerning the veines and letting of bloud, taken out of a very auncient paper booke of Phiſicke notes.
+    _ A ſufficient confutation of the ſuppoſed neceſsitie of annuall bleeding. Cap. 24.
 
-    _ An Exception.
+    _ Ofinciſion of Arteries. Chap. 25.
 
-    _ Concluſio Operis.
+    _ Of particuler euacuation of bloud, and firſt of bloudſuckers or horſeleaches. Chap. 26.
 
-1. Preparation before bleeding. Chap. 18.
+    _ Of Cupping, or boxing & ſcarification, the other two particular euacuations of bloud. Chap. 27.
 
-    _ An Obiection.
+    _ A profitable and compendious Table of Phlebotomy or bloudletting containing diuers points in this Treatiſe handled and diſcuſſed of, and ſetting downe by diuiſion the generall and ſpeciall conſiderations thereunto belonging. Chap. 28.
 
-    _ The Solution.
+      * An Exception.
 
-    _ Certaine very old engliſh verſes, concerning the veines and letting of bloud, taken out of a very auncient paper booke of Phiſicke notes.
-
-    _ An Exception.
-
-    _ Concluſio Operis.
-
-1. What is to be done in the verie time of the inciſion. Chap. 19.
-
-    _ An Obiection.
-
-    _ The Solution.
-
-    _ Certaine very old engliſh verſes, concerning the veines and letting of bloud, taken out of a very auncient paper booke of Phiſicke notes.
-
-    _ An Exception.
-
-    _ Concluſio Operis.
-
-1. A preſcription, or regiment of the patient, after bleeding. Chap. 20.
-
-    _ An Obiection.
-
-    _ The Solution.
-
-    _ Certaine very old engliſh verſes, concerning the veines and letting of bloud, taken out of a very auncient paper booke of Phiſicke notes.
-
-    _ An Exception.
-
-    _ Concluſio Operis.
-
-1. What veines are to be opened, both in generall, & particular diſeaſes. Chap. 21.
-
-    _ An Obiection.
-
-    _ The Solution.
-
-    _ Certaine very old engliſh verſes, concerning the veines and letting of bloud, taken out of a very auncient paper booke of Phiſicke notes.
-
-    _ An Exception.
-
-    _ Concluſio Operis.
-
-1. A profitable obſeruation of the bloud extracted. Chap. 22.
-
-    _ An Obiection.
-
-    _ The Solution.
-
-    _ Certaine very old engliſh verſes, concerning the veines and letting of bloud, taken out of a very auncient paper booke of Phiſicke notes.
-
-    _ An Exception.
-
-    _ Concluſio Operis.
-
-1. A ſhort reherſall of eight auncient errours, touching bleeding, and a ſufficient confutation of them, by auncient authorities. Chap. 23.
-
-    _ An Obiection.
-
-    _ The Solution.
-
-    _ Certaine very old engliſh verſes, concerning the veines and letting of bloud, taken out of a very auncient paper booke of Phiſicke notes.
-
-    _ An Exception.
-
-    _ Concluſio Operis.
-
-1. A ſufficient confutation of the ſuppoſed neceſsitie of annuall bleeding. Cap. 24.
-
-    _ An Obiection.
-
-    _ The Solution.
-
-    _ Certaine very old engliſh verſes, concerning the veines and letting of bloud, taken out of a very auncient paper booke of Phiſicke notes.
-
-    _ An Exception.
-
-    _ Concluſio Operis.
-
-1. Ofinciſion of Arteries. Chap. 25.
-
-    _ An Obiection.
-
-    _ The Solution.
-
-    _ Certaine very old engliſh verſes, concerning the veines and letting of bloud, taken out of a very auncient paper booke of Phiſicke notes.
-
-    _ An Exception.
-
-    _ Concluſio Operis.
-
-1. Of particuler euacuation of bloud, and firſt of bloudſuckers or horſeleaches. Chap. 26.
-
-    _ An Obiection.
-
-    _ The Solution.
-
-    _ Certaine very old engliſh verſes, concerning the veines and letting of bloud, taken out of a very auncient paper booke of Phiſicke notes.
-
-    _ An Exception.
-
-    _ Concluſio Operis.
-
-1. Of Cupping, or boxing & ſcarification, the other two particular euacuations of bloud. Chap. 27.
-
-    _ An Obiection.
-
-    _ The Solution.
-
-    _ Certaine very old engliſh verſes, concerning the veines and letting of bloud, taken out of a very auncient paper booke of Phiſicke notes.
-
-    _ An Exception.
-
-    _ Concluſio Operis.
-
-1. A profitable and compendious Table of Phlebotomy or bloudletting containing diuers points in this Treatiſe handled and diſcuſſed of, and ſetting downe by diuiſion the generall and ſpeciall conſiderations thereunto belonging. Chap. 28.
-
-    _ An Obiection.
-
-    _ The Solution.
-
-    _ Certaine very old engliſh verſes, concerning the veines and letting of bloud, taken out of a very auncient paper booke of Phiſicke notes.
-
-    _ An Exception.
-
-    _ Concluſio Operis.
+      * Concluſio Operis.
 
 #####Back#####
-The English phlebotomy: or, Method and way of healing by letting of blood Very profitable in this sp
+
+1. ¶ The Contents of the ſeueral Chapters in this Treatiſe.
+
+1. The names of the authors whoſe help is chiefly vſed in this Collection.
+LONDON, Printed by William Hoſkins & Iohn Danter, dwelling in Feter-Lane. 1592.•y•sts i•〈◊〉•*
 **Types of content**
 
   * There are 208 **verse** lines!
